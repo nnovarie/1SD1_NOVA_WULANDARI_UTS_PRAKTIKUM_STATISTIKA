@@ -1,0 +1,2 @@
+# 1SD1_NOVA_WULANDARI_UTS_PRAKTIKUM_STATISTIKA
+Pemenuhan Ujian Tengah Semester 2026
